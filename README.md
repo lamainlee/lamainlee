@@ -1,7 +1,6 @@
 - 👋 Hi, this is @lamainlee
-- 👀 I’m interested in NLP,crypto
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m nobody
+- 💞️ I’m looking for my girlfriend
 - 📫 contact lamainlee996#gmail.com 
 
 <!---
